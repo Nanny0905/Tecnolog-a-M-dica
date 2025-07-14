@@ -1,1 +1,1 @@
-# Tecnolog-a-M-dica
+# Tecnología - Médica
